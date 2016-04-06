@@ -1,1 +1,1 @@
-# reguration4spaceapps2016
+# regulation4spaceapps2016
